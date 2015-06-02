@@ -1,2 +1,2 @@
 # Homepage
-My homepage
+Ian Mittelstaedt, 16, male, Portland OR.
